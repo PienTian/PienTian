@@ -2,7 +2,7 @@
 - 👀 I’m interested in Pien
 - 🌱 I’m currently learning Programming?
 - 💞️ I’m looking to collaborate on pien
-- 📫 How to reach me in the way whatever you want
+- 📫 How to reach me: pien_tian@aol.com
 
 HI, I'm a student and have interest in the area of programing.
 <!---
